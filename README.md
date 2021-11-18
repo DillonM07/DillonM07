@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DillonM07
+- 👀 I’m interested in ... OooOoOhHHhHhH FiIiiIRRrREEeEe leezard
+- 🌱 I’m currently learning ... JS (Javascript) & Life
+- 💞️ I’m looking to collaborate on ... Games
+- 📫 How to reach me ... Figure it out man
